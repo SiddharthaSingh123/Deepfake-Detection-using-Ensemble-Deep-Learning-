@@ -214,9 +214,9 @@ B.Tech Computer Science and Engineering
 
 Thapar Institute of Engineering and Technology
 
-GitHub: https://github.com/priyam9002
+GitHub: https://github.com/SiddharthaSingh123
 
-LinkedIn: https://www.linkedin.com/in/priyam-chaudhary-a9477b273/
+LinkedIn: https://www.linkedin.com/in/siddhartha-singh-092a7a288/
 
 
 ---
